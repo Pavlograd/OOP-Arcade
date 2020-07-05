@@ -1,4 +1,4 @@
-                                    Welcome yo our Arcade by Maurin LIBERAL and Tristan Mesurolle.
+                                    Welcome to our Arcade by Maurin LIBERAL and Tristan Mesurolle.
 
 
 
